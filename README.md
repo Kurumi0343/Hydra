@@ -1,2 +1,1 @@
-# Hydra
-Hello I'm not a Programmer I am here to learn
+ALL SKIN SCRIPT HERE NOT MINE CREDITS TO THEM
